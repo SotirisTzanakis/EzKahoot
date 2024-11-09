@@ -1,5 +1,5 @@
 # EzKahoot
-Is that EzKahoot ???
+Is that EzKahoot ??? @SotirisTzanakis
 
 Hello there homo homo sapiens! How are you doing? This is another great project by me.
 
