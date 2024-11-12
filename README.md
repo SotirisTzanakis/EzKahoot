@@ -1,1 +1,1 @@
-Back on EzKahoot development on 6 hours just wait for me to finish school
+I will finish the version 2.3 when I get back from school and also finish the readme , sorry :3
