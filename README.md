@@ -1,1 +1,1 @@
-I will finish it in the weekend
+I will really finish the readme in the weekend trust me (dont)
