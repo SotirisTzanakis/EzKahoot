@@ -1,1 +1,1 @@
-I will really finish the readme in the weekend trust me (dont)
+Gonna make the v2 version with AI (discontinuing this version)
